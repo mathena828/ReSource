@@ -7,4 +7,5 @@ Computer Science, College of Engineering, University of the Philippines, Diliman
 Ma. Rowena C. Solamo for the 1st and 2nd Semester of the academic year 2019-2020.
 
 Group Number : 02
+
 Mathena Angeles, Tris Mercado, Dino Magno Mendoza
