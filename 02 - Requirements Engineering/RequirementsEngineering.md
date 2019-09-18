@@ -1,1 +1,0 @@
-ReSource | Requirements Engineering
